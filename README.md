@@ -1,0 +1,2 @@
+# sinov
+SALOM MEN RUSLANBEK
